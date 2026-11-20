@@ -1,6 +1,6 @@
 # Olá, sou o Ítalo Karimax Oliveira 👋
 
-**Customer Success | Contas B2G e B2B | Melhoria de processos | Dados**
+**Customer Success | Contas B2G e B2B | Melhoria de processos | Dados**  
 Brasília, DF · [LinkedIn](https://linkedin.com/in/italokarimax)
 
 Cuido de clientes públicos e corporativos para que eles tenham resultado com a solução contratada e permaneçam na base. Hoje atendo uma carteira de 148 contas, com órgãos federais do Judiciário, do Executivo e do Ministério Público, e atuo como preposto em contratos administrativos (Lei 14.133/2021).
